@@ -1,4 +1,4 @@
-# about 996.FWB
+# About 996.FWB
 Fighting With Boss. A list collect all the links about fighting with boss  in anti-996 revolution.
 
 # Main body
